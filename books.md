@@ -18,3 +18,13 @@ Predictably Irrational
 by Dan Ariely
 
 [Amazon](http://www.amazon.com/Predictably-Irrational-Revised-Expanded-Decisions/dp/0061353248/ref=sr_1_1?ie=UTF8&qid=1423264257&sr=8-1&keywords=predictably+irrational)
+
+Capitalism and Freedom
+
+by Milton Friedman
+
+[Amazon](http://www.amazon.com/Capitalism-Freedom-Fortieth-Anniversary-Edition/dp/0226264211)
+
+Kissinger: A Biography
+
+by Walter Isaacson
